@@ -1,8 +1,1 @@
-"# mamalinebot" 
-"# linebotmama" 
-"# linebotmama" 
-"# linebotmama" 
-"# linebotmama" 
-"# linebotmama" 
-"# linebotmama" 
 "# linebotmama" 
